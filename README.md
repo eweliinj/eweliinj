@@ -15,3 +15,4 @@ most of time i'm in these skins, chilling around beach, docks and hlvrai area
 
 ![tumblr](https://www.tumblr.com/eweliinj?source=share) 
 ![x](https://x.com/evveliinj?s=09) 
+![vk](https://vk.com/eweliinj) 
