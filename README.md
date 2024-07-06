@@ -12,3 +12,6 @@ my name is evelyn :o)  i use she/her prns
 most of time i'm in these skins, chilling around beach, docks and hlvrai area 
 
 **my social nets hehe >:3 :**
+
+![tumblr](https://www.tumblr.com/eweliinj?source=share) 
+![x](https://x.com/evveliinj?s=09) 
