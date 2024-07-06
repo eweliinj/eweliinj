@@ -2,6 +2,8 @@
 
 my name is evelyn :o)  i use she/her prns
 
+i'm entj 3w4 sx>so 358
+
 **fandoms : half-life, ok k.o! let's be heroes, tmnt, stardew valley**
 
 ----
