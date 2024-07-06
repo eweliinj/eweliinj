@@ -13,6 +13,7 @@ i'm entj 3w4 sx>so 358
 
 most of time i'm in these skins, chilling around beach, docks and hlvrai area 
 
+----
 **my social nets hehe >:3 :**
 
 ![tumblr](https://www.tumblr.com/eweliinj?source=share) 
