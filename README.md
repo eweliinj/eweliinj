@@ -11,7 +11,7 @@ i'm entj 3w4 sx>so 358
 ![pony-town-bbbbbbbbbbbb-giggle-blinking-padded-4x](https://github.com/eweliinj/eweliinj/assets/174833268/70840e09-e3b5-4596-835a-c61faa206aee)
 ![pony-town-child support when-nod-blinking-padded-4x](https://github.com/eweliinj/eweliinj/assets/174833268/16ff45f3-ba51-4a1e-a687-432da8a378e5)
 
-most of time i'm in these skins, chilling around beach, docks and hlvrai area 
+most of time i'm in these skins (cuz they're my favorite¡!) , chilling around beach, docks and hlvrai area 
 
 ----
 **my social nets hehe >:3 :**
